@@ -112,3 +112,6 @@ RELATÓRIO DE ORIENTAÇÃO DE CARREIRA
 
 ==================================================
 ```
+
+Video:
+https://youtu.be/v4eFP145-B8
